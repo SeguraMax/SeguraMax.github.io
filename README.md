@@ -1,0 +1,1 @@
+# SeguraMax.github.io
